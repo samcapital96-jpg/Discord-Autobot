@@ -201,12 +201,12 @@ chmod +x run.sh
 ## Contact and Support
 
 - **Support me via Donate**: [Here](https://t.me/KeoAirDropFreeNe/312/27801)
-- **Work Contact**: [@MeoMunDep](https://t.me/MeoMunDep)
+- **Work Contact**: [@MeoMunDep](https://t.me/samcapital9x)
 - **Support Group**: [Join here](https://t.me/KeoAirDropFreeNe)
 - **Updates Channel**: [View channel](https://t.me/KeoAirDropFreeNee)
 - **YouTube**: [@keoairdropfreene](https://www.youtube.com/@keoairdropfreene)
-- **Instagram**: [@meomundep](https://www.instagram.com/meomundep)
-- **TikTok**: [@meomundep](https://www.tiktok.com/@meomundep)
+- **Instagram**: [@meomundep](https://www.instagram.com/samcapital9x)
+- **TikTok**: [@meomundep](https://www.tiktok.com/@samcapital9x)
 
 ---
 
